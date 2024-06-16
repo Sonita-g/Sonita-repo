@@ -1,0 +1,1 @@
+this class started just with four students
